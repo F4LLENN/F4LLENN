@@ -1,0 +1,4 @@
+- Hi I'm F4LLENN! 
+- Please do not share plugins without permission
+- After downloading the plugins, I would appreciate it if you would vote for me and follow me.
+- Do not share plugins without permission, otherwise administrative action may be initiated against you.
